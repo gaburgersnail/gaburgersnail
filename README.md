@@ -16,7 +16,7 @@ I LOVE drawing, it makes me comfortable (but i suck at it ( ` ᴖ ´ )...)
 
 I always try to keep a good mood to not upset anyone, i dont like hurting people's feelings. If i ever do upset you, i heavily AND deeply apologize about it, i didn't mean it ;n;.
 
-Anyways!!!!!! THATS ALL!!!!!!!! :3 TYSM FOR READING HAVE A NICE DAY OR NIGHT , ( ˶˘ ³˘)♡
+Anyways!!!!!! THATS ALL!!!!!!!! :3 TYSM FOR READING! HAVE A GOOD DAY OR NIGHT , ( ˶˘ ³˘)♡
 
 <img width="498" height="498" alt="aww-the-baby" src="https://github.com/user-attachments/assets/0580c9aa-7605-4f65-b7fa-718ea3f9f588" />
 
