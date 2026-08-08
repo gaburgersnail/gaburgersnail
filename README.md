@@ -12,6 +12,8 @@ I always try to keep a good mood to not upset anyone, i dont like hurting people
 
 Anyways!!!!!! THATS ALL!!!!!!!! :3 TYSM FOR READING HAVE A NICE DAY OR NIGHT , ( ˶˘ ³˘)♡
 
+<img width="498" height="498" alt="aww-the-baby" src="https://github.com/user-attachments/assets/0580c9aa-7605-4f65-b7fa-718ea3f9f588" />
+
 <!--
 **gaburgersnail/gaburgersnail** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
