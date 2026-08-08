@@ -5,7 +5,7 @@ HELLOOO!!! My name is Lucas . Luke for short! :) I'm 🏳‍⚧ ⁠♡⸝⸝ (Ft
 
   ╰ I'm in alot of fandoms! Such as Castle, Total Drama, Regretevator, Chicago Fire, CreatureCore, TMIRB, Drawnout, 9-1-1, Vocaloid and more !! ^^
 
-,, 🎧 I LOVE MUSIC!!!!!!! My favourite artists/bands/producers(??) are: Gisele Gurney (A.K.A Gezebelle Gaburgably), Fried by Fluoride, Uncle Outrage, Femtanyl, Diet Tea Other Cola, Furry Loser, Coakira, Noisetripper, Stomach Book, Lapfox/Halley Labs, Spott (CreatureCore), Devi McCallion (including her aliases), BBSI, MAILPUP/sixwing, cluli, Gynx AND A BUNCH MOREE!!!!!!!!!!! <33
+,, 🎧 I LOVE MUSIC!!!!!!! My favourite artists/bands/producers(??) are: Gisele Gurney (A.K.A Gezebelle Gaburgably), Fried by Fluoride, Uncle Outrage, Femtanyl, Diet Tea Other Cola, Furry Loser, Coakira, Noisetripper, Stomach Book, Lapfox/Halley Labs, Spott (CreatureCore), Devi McCallion (including her aliases), BBSI, MAILPUP/sixwing, cluli (Lost Frog Productions), Gynx AND A BUNCH MOREE!!!!!!!!!!! <33
 
 ◡◡ ﹒ some things about me (˶˃ᆺ˂˶)  
 
