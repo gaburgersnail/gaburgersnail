@@ -7,7 +7,11 @@ HELLOOO!!! My name is Lucas! :) I'm 🏳‍⚧ ⁠♡⸝⸝ (FtM) . My pronouns 
 
 ,, 🎧 I LOVE MUSIC!!!!!!! My favourite artists/bands are: Gisele Gurney (A.K.A Gezebelle Gaburgably), Uncle Outrage, Femtanyl, Coakira, Noisetripper, Stomach Book, Lapfox/Halley Labs, Spott (CreatureCore), Devi McCallion (including her aliases), BBSI, MAILPUP/sixwing, cluli, Gynx AND A BUNCH MOREE!!!!!!!!!!! <33
 
-◡◡ ﹒ some things about me (˶˃ᆺ˂˶) : I don't know how to start/keep a conversation, and i'm deeply sorry about that, because i LOVE talking! So if it ever seems like i'm uninterested or something, trust me, im not. I just don't know what to say. again, im sorry about that! (｡ᵕ ◞ _◟)
+◡◡ ﹒ some things about me (˶˃ᆺ˂˶)  
+
+   <img width="194" height="114" alt="flamingo-albert-albert-flamingo" src="https://github.com/user-attachments/assets/92b2a94d-6ddd-49a0-b3e1-28232a947a16" />
+
+I don't know how to start/keep a conversation, and i'm deeply sorry about that, because i LOVE talking! So if it ever seems like i'm uninterested or something, trust me, im not. I just don't know what to say. again, im sorry about that! (｡ᵕ ◞ _◟)
 
 I really like playing Roblox Psychological horror games and PonyTown! („• ֊ •„)
 
