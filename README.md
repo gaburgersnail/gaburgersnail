@@ -1,5 +1,8 @@
-## i might remake this idk/ My Presentation!!! (??)
-HELLOOO!!! My name is Lucas . Luke for short! :) I'm 🏳‍⚧ (FtM) and bi ⁠♡⸝⸝ . My pronouns are he/they ! ︶︶︶
+## i might remake this idk/ My Presentation!!! (??
+<code style="color : lightskyblue">"So do your little dance around my room, i know im gonna join you soon!"</code>
+
+︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
+HELLOOO!!! My name is Lucas . Luke for short! :) I'm 🏳‍⚧ (FtM) and bi ⁠♡⸝⸝ . My pronouns are he/they ! 
 
 <img width="498" height="322" alt="aww-so-cute" src="https://github.com/user-attachments/assets/5af0f3fb-c814-4c91-ad86-fa20b4663642" />
 
