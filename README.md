@@ -13,6 +13,8 @@ HELLOOO!!! My name is Lucas! :) I'm 🏳‍⚧ ⁠♡⸝⸝ (FtM) . My pronouns 
 
 I don't know how to start/keep a conversation, and i'm deeply sorry about that, because i LOVE talking! So if it ever seems like i'm uninterested or something, trust me, im not. I just don't know what to say. again, im sorry about that! (｡ᵕ ◞ _◟)
 
+My birthday is October 3rd!! 🎂 ◝(ᵔᗜᵔ)◜ !
+
 I really like playing Roblox Psychological horror games and PonyTown! („• ֊ •„)
 
 I LOVE drawing, it makes me comfortable (but i suck at it ( ` ᴖ ´ )...)
