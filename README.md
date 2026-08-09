@@ -22,6 +22,7 @@ I really like playing Roblox Psychological horror games and PonyTown! („• ֊
 
 I LOVE drawing, it makes me comfortable (but i suck at it ( ` ᴖ ´ )...)
 
+I'm a lil bit sensitive, pls bear with it!
 
 I always try to keep a good mood to not upset anyone, i dont like hurting people's feelings. If i ever do upset you, i heavily AND deeply apologize about it, i didn't mean it ;n;.
 
