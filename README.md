@@ -12,7 +12,7 @@
   <img width="498" height="322" alt="aww-so-cute" src="https://github.com/user-attachments/assets/5af0f3fb-c814-4c91-ad86-fa20b4663642" />
 </p>
 
-  ╰ I'm in alot of fandoms! Such as Castle, Total Drama, Regretevator, Chicago Fire, CreatureCore, TMIRB, Drawnout, 9-1-1, II and more !! ^^
+  ╰ I'm in alot of fandoms! Such as Castle, D&B, Total Drama, Regretevator, Chicago Fire, CreatureCore, TMIRB, Drawnout, 9-1-1, II and more !! ^^
 
 ,, 🎧 I LOVE MUSIC!!!!!!! My favourite artists/bands/producers(??) are: Gisele Gurney (A.K.A Gezebelle Gaburgably), Fried by Fluoride, Uncle Outrage, Femtanyl, Diet Tea Other Cola, Emamouse, HEXXO, Furry Loser, Coakira, Noisetripper, Stomach Book, Lapfox/Halley Labs, Spott (CreatureCore), Devi McCallion (including her aliases), BBSI, MAILPUP/sixwing, cluli (Lost Frog Productions), Gynx AND A BUNCH MOREE!!!!!!!!!!! <33
 
