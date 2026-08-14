@@ -1,4 +1,4 @@
-## Im remaking this bs. My presentation!!
+## My presentation!!
 <p align="center">
   <code style="color : lightskyblue">"So do your little dance around my room, i know im gonna join you soon!"</code>
 </p>
