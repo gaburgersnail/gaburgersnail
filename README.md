@@ -1,10 +1,16 @@
 ## Im remaking this bs. My presentation!!
-<code style="color : lightskyblue">"So do your little dance around my room, i know im gonna join you soon!"</code>
+<p align="center">
+  <code style="color : lightskyblue">"So do your little dance around my room, i know im gonna join you soon!"</code>
+</p>
 
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
-HELLOOO!!! My name is Lucas . Luke for short! :) I'm 🏳‍⚧ (FtM) and bi ⁠♡⸝⸝ . My pronouns are he/they ! 
+<p align="center">
+  HELLOOO!!! My name is Lucas . Luke for short! :) I'm 🏳‍⚧ (FtM) and bi ⁠♡⸝⸝ . My pronouns are he/they ! 
+</p>
 
-<img width="498" height="322" alt="aww-so-cute" src="https://github.com/user-attachments/assets/5af0f3fb-c814-4c91-ad86-fa20b4663642" />
+<p align="center">
+  <img width="498" height="322" alt="aww-so-cute" src="https://github.com/user-attachments/assets/5af0f3fb-c814-4c91-ad86-fa20b4663642" />
+</p>
 
   ╰ I'm in alot of fandoms! Such as Castle, Total Drama, Regretevator, Chicago Fire, CreatureCore, TMIRB, Drawnout, 9-1-1, II and more !! ^^
 
@@ -30,8 +36,9 @@ I always try to keep a good mood to not upset anyone, i dont like hurting people
 
 Anyways!!!!!! THATS ALL!!!!!!!! :3 TYSM FOR READING! HAVE A GOOD DAY OR NIGHT , ( ˶˘ ³˘)♡
 
-<img width="498" height="498" alt="aww-the-baby" src="https://github.com/user-attachments/assets/0580c9aa-7605-4f65-b7fa-718ea3f9f588" />
-
+<p align="center">
+  <img width="498" height="498" alt="aww-the-baby" src="https://github.com/user-attachments/assets/0580c9aa-7605-4f65-b7fa-718ea3f9f588" />
+</p>
 <!--
 **gaburgersnail/gaburgersnail** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
