@@ -9,7 +9,7 @@
 </p>
 
 <p align="center">
-  <img width="498" height="322" alt="aww-so-cute" src="https://github.com/user-attachments/assets/5af0f3fb-c814-4c91-ad86-fa20b4663642" />
+<img width="498" height="428" alt="stomachbook-stomach-book" src="https://github.com/user-attachments/assets/bf1e850a-de9c-4e5b-b7b2-fa794ee0bf2a" />
 </p>
 
   ╰ I'm in alot of fandoms! Such as Castle, D&B, Total Drama, Regretevator, Chicago Fire, CreatureCore, TMIRB, Drawnout, 9-1-1, II and more !! ^^
