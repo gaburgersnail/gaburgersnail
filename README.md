@@ -26,11 +26,9 @@ My birthday is October 3rd!! 🎂 ◝(ᵔᗜᵔ)◜ !
 
 I really like playing Psychological horror games and PonyTown! („• ֊ •„)
 
-I LOVE drawing, it makes me comfortable (but i suck at it ( ` ᴖ ´ )...)
+I like drawing
 
-I'm a lil bit sensitive, pls bear with it!
-
-I always try to keep a good mood to not upset anyone, i dont like hurting people's feelings. If i ever do upset you, i heavily AND deeply apologize about it, i didn't mean it ;n;.
+I'm a lil bit sensitive
 
 1!!! ONE LAST THING!!!!!! go check out my Strawpage : https://gaburgersnail.straw.page (ITS STILL WORK IN PROGRESS, THAT'S WHY IT'S PRETTY SHORT AND SIMPLE!!!)
 
