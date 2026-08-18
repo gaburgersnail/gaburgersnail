@@ -24,7 +24,7 @@ I don't know how to start/keep a conversation, and i'm deeply sorry about that, 
 
 My birthday is October 3rd!! 🎂 ◝(ᵔᗜᵔ)◜ !
 
-I really like playing Roblox Psychological horror games and PonyTown! („• ֊ •„)
+I really like playing Psychological horror games and PonyTown! („• ֊ •„)
 
 I LOVE drawing, it makes me comfortable (but i suck at it ( ` ᴖ ´ )...)
 
