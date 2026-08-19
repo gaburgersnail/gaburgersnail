@@ -32,10 +32,12 @@ I'm a lil bit sensitive
 
 1!!! ONE LAST THING!!!!!! go check out my Strawpage : https://gaburgersnail.straw.page (ITS STILL WORK IN PROGRESS, THAT'S WHY IT'S PRETTY SHORT AND SIMPLE!!!)
 
-Anyways!!!!!! THATS ALL!!!!!!!! :3 TYSM FOR READING! HAVE A GOOD DAY OR NIGHT , ( ˶˘ ³˘)♡
+<p align="center">
+  Anyways!!!!!! THATS ALL!!!!!!!! :3 TYSM FOR READING! HAVE A GOOD DAY OR NIGHT , ( ˶˘ ³˘)♡
+</p>
 
 <p align="center">
-  <img width="498" height="498" alt="aww-the-baby" src="https://github.com/user-attachments/assets/0580c9aa-7605-4f65-b7fa-718ea3f9f588" />
+ <img width="365" height="498" alt="razor" src="https://github.com/user-attachments/assets/5c7ddfb3-8872-41c0-ba76-a7357f244e0e" />
 </p>
 <!--
 **gaburgersnail/gaburgersnail** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
