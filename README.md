@@ -30,7 +30,7 @@ I like drawing
 
 I'm a lil bit sensitive
 
-1!!! ONE LAST THING!!!!!! go check out my Strawpage : https://gaburgersnail.straw.page (its bad on purpose)
+1!!! ONE LAST THING!!!!!! go check out my Strawpage : https://gaburgersnail.straw.page (i know its ugly leave me alone)
 <p align="center">
   Anyways!!!!!! THATS ALL!!!!!!!! :3 TYSM FOR READING! HAVE A GOOD DAY OR NIGHT , ( ˶˘ ³˘)♡
 </p>
