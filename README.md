@@ -5,16 +5,16 @@
 
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
 <p align="center">
-  HELLOOO!!! My name is Lucas . Luke for short! :) I'm 🏳‍⚧ (FtM) and bi ⁠♡⸝⸝ . My pronouns are he/they ! 
+  HELLOOO!!! My name is Lucas . Luke for short! :) I'm 🏳‍⚧ (FtM) and gay ⁠♡⸝⸝ . My pronouns are he/they ! 
 </p>
 
 <p align="center">
 <img width="498" height="428" alt="stomachbook-stomach-book" src="https://github.com/user-attachments/assets/bf1e850a-de9c-4e5b-b7b2-fa794ee0bf2a" />
 </p>
 
-  ╰ I'm in alot of fandoms! Such as Castle, D&B, Total Drama, Regretevator, Chicago Fire, CreatureCore, TMIRB, Drawnout, 9-1-1, II and more !! ^^
+  ╰ I'm in a few fandoms! Such as Castle, D&B, Total Drama, Regretevator, Chicago Fire, CreatureCore, TMIRB, Drawnout, 9-1-1, II and more !! ^^
 
-,, 🎧 I LOVE MUSIC!!!!!!! My favourite artists/bands/producers(??) are: Gisele Gurney (A.K.A Gezebelle Gaburgably), Fried by Fluoride, Uncle Outrage, Femtanyl, Diet Tea Other Cola, Emamouse, HEXXO, Furry Loser, Coakira, Noisetripper, Stomach Book, Lapfox/Halley Labs, Spott (CreatureCore), Devi McCallion (including her aliases), BBSI, MAILPUP/sixwing, cluli (Lost Frog Productions), Gynx AND A BUNCH MOREE!!!!!!!!!!! <33
+,, 🎧 I LOVE MUSIC!!!!!!! My favourite artists/bands/producers(??) are: Gisele Gurney (A.K.A Gezebelle Gaburgably <3 ), Fried by Fluoride, Uncle Outrage, Femtanyl, Diet Tea Other Cola, Emamouse, HEXXO, Furry Loser, Coakira, Noisetripper, Stomach Book, Lapfox/Halley Labs, Spott (CreatureCore), Devi McCallion (including her aliases), DOG TREATS, BBSI, MAILPUP/sixwing, cluli (Lost Frog Productions), Gynx AND A BUNCH MOREE!!!!!!!!!!! <33
 
 ◡◡ ﹒ some things about me (˶˃ᆺ˂˶)  
 
