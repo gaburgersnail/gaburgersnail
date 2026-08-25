@@ -6,7 +6,7 @@
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
 <p align="center">
   HELLOOO!!! My name is Lucas . Luke for short! :) I'm 🏳‍⚧ (FtM) and gay ⁠♡⸝⸝ . My pronouns are he/they ! 
-</p>
+</p><img width="150" height="20" alt="68747470733a2f2f61647269616e73626c696e6b6965636f6c6c656374696f6e2e6e656f6369746965732e6f72672f6334332e676966" src="https://github.com/user-attachments/assets/46dd1c8f-822f-4383-a1cf-a64b2ba32db3" />
 
 <p align="center">
 <img width="498" height="428" alt="stomachbook-stomach-book" src="https://github.com/user-attachments/assets/bf1e850a-de9c-4e5b-b7b2-fa794ee0bf2a" />
