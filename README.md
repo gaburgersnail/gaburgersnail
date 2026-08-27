@@ -20,13 +20,15 @@
 
    <img width="194" height="114" alt="flamingo-albert-albert-flamingo" src="https://github.com/user-attachments/assets/92b2a94d-6ddd-49a0-b3e1-28232a947a16" />
 
-I don't know how to start/keep a conversation, and i'm deeply sorry about that, because i LOVE talking! So if it ever seems like i'm uninterested or something, trust me, im not. I just don't know what to say. again, im sorry about that! (｡ᵕ ◞ _◟)
+I don't know how to start/keep a conversation, and i'm deeply sorry about that. So if it ever seems like i'm uninterested or something, trust me, im not. I just don't know what to say. again, im sorry. (｡ᵕ ◞ _◟)
 
 My birthday is October 3rd!! 🎂 ◝(ᵔᗜᵔ)◜ !
 
 I really like playing Psychological horror games and PonyTown! („• ֊ •„)
 
 I like drawing
+
+Gisele Gurney is my comfort artist, while Bis and Uncle Outrage are comfort bands
 
 I'm a lil bit sensitive
 
