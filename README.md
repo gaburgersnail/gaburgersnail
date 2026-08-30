@@ -41,7 +41,7 @@ I'm a lil bit sensitive
 </p>
 
 <p align="center">
- <img width="150" height="20" alt="razor" src="https://github.com/user-attachments/assets/5c7ddfb3-8872-41c0-ba76-a7357f244e0e" />
+ <img width="300" height="150" alt="razor" src="https://github.com/user-attachments/assets/5c7ddfb3-8872-41c0-ba76-a7357f244e0e" />
 </p>
 <img width="150" height="20" alt="femtanyl blinkie colon three" src="https://github.com/user-attachments/assets/6c73751f-84f9-4ead-839c-22ca9e33ef63" /><img width="150" height="20" alt="a94782e7ea49dd576a082b00fd3816c21f0e885c" src="https://github.com/user-attachments/assets/08c8aa0a-5aaf-4527-91bf-43ff45bcbe8a" />
 <img width="150" height="20" alt="f69ac9bcfd9ae4b1495739085a2c1d5a8a879781" src="https://github.com/user-attachments/assets/f22249ed-d1d0-4843-88e1-2974fa914ac8" /><img width="150" height="20" alt="47" src="https://github.com/user-attachments/assets/0db26d97-7990-4ff6-91bf-ebaf7ba96651" />
