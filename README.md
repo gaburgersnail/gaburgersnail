@@ -18,7 +18,9 @@
 
 ◡◡ ﹒ some things about me (˶˃ᆺ˂˶)  
 
-   <img width="194" height="114" alt="flamingo-albert-albert-flamingo" src="https://github.com/user-attachments/assets/92b2a94d-6ddd-49a0-b3e1-28232a947a16" /><img width="194" height="113" alt="a72" src="https://github.com/user-attachments/assets/aed4ed6b-bdef-4b54-8ea3-58e815a63b19" />
+   <img width="194" height="114" alt="flamingo-albert-albert-flamingo" src="https://github.com/user-attachments/assets/92b2a94d-6ddd-49a0-b3e1-28232a947a16" /><img width="194" height="113" alt="a72" src="https://github.com/user-attachments/assets/aed4ed6b-bdef-4b54-8ea3-58e815a63b19" /><img width="194" height="113" alt="tumblr_24e26feb48f1b0b03d3aaaba0974000d_e14b3a67_100" src="https://github.com/user-attachments/assets/568a0b9f-abfa-44e5-b0d4-25209a339f5e" /><img width="194" height="113" alt="tumblr_bd61192a9333f9a592970208d4863246_baad5bb2_100" src="https://github.com/user-attachments/assets/f62cad7d-177a-4761-906d-6de329a810e1" />
+
+
 
 
 I don't know how to start/keep a conversation, and i'm deeply sorry about that. So if it ever seems like i'm uninterested or something, trust me, im not. I just don't know what to say. again, im sorry. (｡ᵕ ◞ _◟)
@@ -39,10 +41,10 @@ I'm a lil bit sensitive
 </p>
 
 <p align="center">
- <img width="365" height="498" alt="razor" src="https://github.com/user-attachments/assets/5c7ddfb3-8872-41c0-ba76-a7357f244e0e" />
+ <img width="150" height="20" alt="razor" src="https://github.com/user-attachments/assets/5c7ddfb3-8872-41c0-ba76-a7357f244e0e" />
 </p>
-<img width="300" height="40" alt="femtanyl blinkie colon three" src="https://github.com/user-attachments/assets/6c73751f-84f9-4ead-839c-22ca9e33ef63" /><img width="200" height="30" alt="a94782e7ea49dd576a082b00fd3816c21f0e885c" src="https://github.com/user-attachments/assets/08c8aa0a-5aaf-4527-91bf-43ff45bcbe8a" />
-<img width="200" height="30" alt="f69ac9bcfd9ae4b1495739085a2c1d5a8a879781" src="https://github.com/user-attachments/assets/f22249ed-d1d0-4843-88e1-2974fa914ac8" /><img width="150" height="20" alt="47" src="https://github.com/user-attachments/assets/0db26d97-7990-4ff6-91bf-ebaf7ba96651" />
+<img width="150" height="20" alt="femtanyl blinkie colon three" src="https://github.com/user-attachments/assets/6c73751f-84f9-4ead-839c-22ca9e33ef63" /><img width="150" height="20" alt="a94782e7ea49dd576a082b00fd3816c21f0e885c" src="https://github.com/user-attachments/assets/08c8aa0a-5aaf-4527-91bf-43ff45bcbe8a" />
+<img width="150" height="20" alt="f69ac9bcfd9ae4b1495739085a2c1d5a8a879781" src="https://github.com/user-attachments/assets/f22249ed-d1d0-4843-88e1-2974fa914ac8" /><img width="150" height="20" alt="47" src="https://github.com/user-attachments/assets/0db26d97-7990-4ff6-91bf-ebaf7ba96651" />
 <img width="150" height="20" alt="q5" src="https://github.com/user-attachments/assets/476e0ba9-d7a3-4d5c-8d3f-21cc18420297" />
 <img width="150" height="20" alt="m14" src="https://github.com/user-attachments/assets/ac450c0c-ec1b-4d71-a948-0349d2e0adaf" />
 <img width="150" height="20" alt="e81" src="https://github.com/user-attachments/assets/897c32f1-63d6-4f53-a01a-12036f5ad5e4" />
@@ -51,7 +53,11 @@ I'm a lil bit sensitive
 <img width="150" height="20" alt="49" src="https://github.com/user-attachments/assets/3da01dd0-529c-414e-969e-3eee10de711f" />
 <img width="150" height="20" alt="r1" src="https://github.com/user-attachments/assets/daade83b-53f8-498a-b110-0e8f92a67735" />
 <img width="150" height="20" alt="r2" src="https://github.com/user-attachments/assets/086723f2-153e-46f5-8d33-d021aaa79d32" />
-<img width="150" height="20" alt="q32" src="https://github.com/user-attachments/assets/427e7ff5-69ed-47d0-b8f2-f4eeac331d5d" /> 
+<img width="150" height="20" alt="q32" src="https://github.com/user-attachments/assets/427e7ff5-69ed-47d0-b8f2-f4eeac331d5d" /><img width="150" height="20" alt="tumblr_3c373594c3173e07aabba1afb77281a0_824252c0_250" src="https://github.com/user-attachments/assets/f0d236f6-d447-4e8c-9a79-eb6c2af47b6d" /><img width="150" height="20" alt="tumblr_2275ef008d8c3c78e34cbe64210ed6cf_fb64a9a5_250" src="https://github.com/user-attachments/assets/2d04c0c1-2a7c-4b9f-92dd-86b55093c0b6" /><img width="150" height="20" alt="tumblr_b737fef229ef8fca35d883050b36d4e9_34970fad_250" src="https://github.com/user-attachments/assets/21559958-cbba-4863-af62-ca69f638ac97" /><img width="150" height="20" alt="tumblr_4d1769303e47a1e874a644e60416a419_b0c34492_250" src="https://github.com/user-attachments/assets/8eeee6cd-6bb1-4994-9a84-1f7a75d601f4" />
+
+
+
+ 
 
 hi im playing around with blinkies cus theyre cool
 
