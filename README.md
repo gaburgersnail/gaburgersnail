@@ -18,7 +18,8 @@
 
 ◡◡ ﹒ some things about me (˶˃ᆺ˂˶)  
 
-   <img width="194" height="114" alt="flamingo-albert-albert-flamingo" src="https://github.com/user-attachments/assets/92b2a94d-6ddd-49a0-b3e1-28232a947a16" /><img width="194" height="113" alt="a72" src="https://github.com/user-attachments/assets/aed4ed6b-bdef-4b54-8ea3-58e815a63b19" /><img width="194" height="113" alt="tumblr_24e26feb48f1b0b03d3aaaba0974000d_e14b3a67_100" src="https://github.com/user-attachments/assets/568a0b9f-abfa-44e5-b0d4-25209a339f5e" /><img width="194" height="113" alt="tumblr_bd61192a9333f9a592970208d4863246_baad5bb2_100" src="https://github.com/user-attachments/assets/f62cad7d-177a-4761-906d-6de329a810e1" />
+   <img width="194" height="114" alt="flamingo-albert-albert-flamingo" src="https://github.com/user-attachments/assets/92b2a94d-6ddd-49a0-b3e1-28232a947a16" /><img width="194" height="113" alt="a72" src="https://github.com/user-attachments/assets/aed4ed6b-bdef-4b54-8ea3-58e815a63b19" /><img width="194" height="113" alt="tumblr_24e26feb48f1b0b03d3aaaba0974000d_e14b3a67_100" src="https://github.com/user-attachments/assets/568a0b9f-abfa-44e5-b0d4-25209a339f5e" /><img width="194" height="113" alt="tumblr_bd61192a9333f9a592970208d4863246_baad5bb2_100" src="https://github.com/user-attachments/assets/f62cad7d-177a-4761-906d-6de329a810e1" /><img width="194" height="113" alt="tumblr_824d36dfc76a901144f2db8062ccbaee_0dd5541f_100" src="https://github.com/user-attachments/assets/97b8df6f-82a9-4b59-b799-0f4d4db29d6f" />
+
 
 
 
@@ -53,13 +54,23 @@ I'm a lil bit sensitive
 <img width="150" height="20" alt="49" src="https://github.com/user-attachments/assets/3da01dd0-529c-414e-969e-3eee10de711f" />
 <img width="150" height="20" alt="r1" src="https://github.com/user-attachments/assets/daade83b-53f8-498a-b110-0e8f92a67735" />
 <img width="150" height="20" alt="r2" src="https://github.com/user-attachments/assets/086723f2-153e-46f5-8d33-d021aaa79d32" />
-<img width="150" height="20" alt="q32" src="https://github.com/user-attachments/assets/427e7ff5-69ed-47d0-b8f2-f4eeac331d5d" /><img width="150" height="20" alt="tumblr_3c373594c3173e07aabba1afb77281a0_824252c0_250" src="https://github.com/user-attachments/assets/f0d236f6-d447-4e8c-9a79-eb6c2af47b6d" /><img width="150" height="20" alt="tumblr_2275ef008d8c3c78e34cbe64210ed6cf_fb64a9a5_250" src="https://github.com/user-attachments/assets/2d04c0c1-2a7c-4b9f-92dd-86b55093c0b6" /><img width="150" height="20" alt="tumblr_b737fef229ef8fca35d883050b36d4e9_34970fad_250" src="https://github.com/user-attachments/assets/21559958-cbba-4863-af62-ca69f638ac97" /><img width="150" height="20" alt="tumblr_4d1769303e47a1e874a644e60416a419_b0c34492_250" src="https://github.com/user-attachments/assets/8eeee6cd-6bb1-4994-9a84-1f7a75d601f4" />
+<img width="150" height="20" alt="q32" src="https://github.com/user-attachments/assets/427e7ff5-69ed-47d0-b8f2-f4eeac331d5d" /><img width="150" height="20" alt="tumblr_3c373594c3173e07aabba1afb77281a0_824252c0_250" src="https://github.com/user-attachments/assets/f0d236f6-d447-4e8c-9a79-eb6c2af47b6d" /><img width="150" height="20" alt="tumblr_2275ef008d8c3c78e34cbe64210ed6cf_fb64a9a5_250" src="https://github.com/user-attachments/assets/2d04c0c1-2a7c-4b9f-92dd-86b55093c0b6" /><img width="150" height="20" alt="tumblr_b737fef229ef8fca35d883050b36d4e9_34970fad_250" src="https://github.com/user-attachments/assets/21559958-cbba-4863-af62-ca69f638ac97" /><img width="150" height="20" alt="tumblr_4d1769303e47a1e874a644e60416a419_b0c34492_250" src="https://github.com/user-attachments/assets/8eeee6cd-6bb1-4994-9a84-1f7a75d601f4" /><img width="150" height="20" alt="tumblr_e7311b752c9ea8162003f1b061e369a0_8bd2ec52_250" src="https://github.com/user-attachments/assets/03824c3b-5752-4b78-b6c4-17c11a65d62e" /><img width="150" height="20" alt="tumblr_f13ff6b4e575024d595c73c3822ad166_c3275d98_250" src="https://github.com/user-attachments/assets/ddb75b1f-af98-4484-8e76-9f4bdae06093" /><img width="150" height="20" alt="tumblr_e5ab21238bc42df1b49eb0f1b1d19c7e_21d6befa_250" src="https://github.com/user-attachments/assets/6153c324-2676-4ca1-98c9-74057ac44bd7" /><img width="150" height="20" alt="tumblr_463a06968782fa4bded338b29102ca8f_d0e007ff_250" src="https://github.com/user-attachments/assets/3d8f7a01-4149-4cc4-8d2f-be79330c84ce" /><img width="150" height="20" alt="tumblr_06171120f9415ea38ffe0666b243ea6b_7c4227c2_250" src="https://github.com/user-attachments/assets/50c380f1-50fb-40a0-99cd-c3397b0b0869" />
+<img width="150" height="20" alt="tumblr_1955767f762a28f66e112552b44896d8_c9a79ad3_250" src="https://github.com/user-attachments/assets/7851b4bd-7482-4595-bc99-52eb7ad41b00" /><img width="150" height="20" alt="tumblr_52b87a861feb00a8fcd90f10427981f5_616909af_250" src="https://github.com/user-attachments/assets/d84e95e3-364f-4fdb-b96e-40875b589922" /><img width="150" height="20" alt="tumblr_948ec4bf2d413ed46e1c5f933a030b12_4f437828_100" src="https://github.com/user-attachments/assets/2149be4e-23ce-4846-b4cd-ffb6d3377015" /><img width="150" height="20" alt="tumblr_b0ad6c0a09cdfe3ac9ac5f9e91d44dc4_da972c3b_250" src="https://github.com/user-attachments/assets/4a0fc10c-f6b9-4aff-9b9a-a4c7cfdde079" />
+<img width="150" height="20" alt="tumblr_03d2ad5c54f6d204f5e19f3657eced05_8e5c5136_250" src="https://github.com/user-attachments/assets/0d8c0ba4-4a07-46d2-a232-415ee2259267" />
+
+
+
+
+
+
+
+
 
 
 
  
 
-hi im playing around with blinkies cus theyre cool
+hi ignnore this. im playing around with blinkies cus theyre cool
 
 <!--
 **gaburgersnail/gaburgersnail** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
