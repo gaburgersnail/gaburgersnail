@@ -26,17 +26,19 @@
 
 I don't know how to start/keep a conversation, and i'm deeply sorry about that. So if it ever seems like i'm uninterested or something, trust me, im not. I just don't know what to say. again, im sorry. (｡ᵕ ◞ _◟)
 
-My birthday is October 3rd!! 🎂 ◝(ᵔᗜᵔ)◜ !
+My birthday is October 3rd!! 🎂
+
+I like joking around! Mostly with friends though
 
 I really like playing Psychological horror games and PonyTown! („• ֊ •„)
 
 I like drawing
 
-Gisele Gurney is my comfort artist, while Bis and Uncle Outrage are comfort bands
+Gisele Gurney is my comfort artist, while Bis is my comfort band
 
-I'm a lil bit sensitive
+I'm sensitive, sorry
 
-1!!! ONE LAST THING!!!!!! go check out my Strawpage : https://gaburgersnail.straw.page (i know its ugly leave me alone)
+my Strawpage : https://gaburgersnail.straw.page (i know its ugly leave me alone)
 <p align="center">
   Anyways!!!!!! THATS ALL!!!!!!!! :3 TYSM FOR READING! HAVE A GOOD DAY OR NIGHT , ( ˶˘ ³˘)♡
 </p>
@@ -76,7 +78,7 @@ I'm a lil bit sensitive
 
  
 
-hi ignnore this. im playing around with blinkies cus theyre cool
+hi ignore this. im playing around with blinkies cus theyre cool
 
 <!--
 **gaburgersnail/gaburgersnail** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
