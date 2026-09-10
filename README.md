@@ -76,9 +76,10 @@ my Strawpage : https://gaburgersnail.straw.page (i know its ugly leave me alone)
 
 
 
+
  
 
-hi ignore this. im playing around with blinkies cus theyre cool
+<img width="130" height="190" alt="IMG-20260910-WA0029" src="https://github.com/user-attachments/assets/5f4eb46a-8f96-4527-bccf-6ec3ce74e656" /> guys look at my cool hamster yes ok
 
 <!--
 **gaburgersnail/gaburgersnail** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
