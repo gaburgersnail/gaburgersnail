@@ -1,6 +1,6 @@
 ## My presentation!!
 <p align="center">
-  <code style="color : lightskyblue">"why si this n bfewfm n n wnf n m"</code>
+  <code style="color : lightskyblue">"hbqwdbqhj 1:46[charlie kirk] i love how white you are"</code>
 </p>
 
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
@@ -32,7 +32,7 @@ I like joking around! Mostly with friends though
 
 I really like playing Psychological horror games and PonyTown! („• ֊ •„)
 
-I like drawing
+I like drawing, reading, writing, painting and coding
 
 Gisele Gurney is my comfort artist, while Bis is my comfort band
 
