@@ -38,7 +38,7 @@ Gisele Gurney is my comfort artist, while Bis is my comfort band
 
 I'm sensitive, sorry
 
-my Strawpage : https://gaburgersnail.straw.page (i know its ugly leave me alone)
+my [Strawpage](https://gaburgersnail.straw.page) (fatass wip)
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31isjnv22efuaintnx52mswxhmee&cover_image=true&theme=spotify-embed&show_offline=true&background_color=000000&interchange=false&profanity=false&hide_remaster=false&bar_color=ff94e8&bar_color_cover=false&mode=dark">
