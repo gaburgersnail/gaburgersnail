@@ -1,6 +1,6 @@
 ## ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤㅤ did you know im going to remake this?
 
-
+ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤnobody gaf ⬆
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
 <p align="center">
   HEllo1 My name is Lucas . Luke for short :) I'm 🏳‍⚧ (FtM) and gay omg . My pronouns are HE/THEY 
