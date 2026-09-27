@@ -1,7 +1,5 @@
-## My presentation!!
-<p align="center">
-  <code style="color : lightskyblue">"rfffefeferfe"</code>
-</p>
+## My presentation
+
 
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
 <p align="center">
