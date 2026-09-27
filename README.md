@@ -1,11 +1,11 @@
 ## My presentation!!
 <p align="center">
-  <code style="color : lightskyblue">"hbqwdbqhj 1:46[charlie kirk] i love how white you are"</code>
+  <code style="color : lightskyblue">"rfffefeferfe"</code>
 </p>
 
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
 <p align="center">
-  HELLOOO!!! My name is Lucas . Luke for short! :) I'm 🏳‍⚧ (FtM) and gay ⁠♡⸝⸝ . My pronouns are he/they ! 
+  HEllo1 My name is Lucas . Luke for short! :) I'm 🏳‍⚧ (FtM) and gay ⁠♡⸝⸝ . My pronouns are he/they ! 
 </p><img width="150" height="20" alt="68747470733a2f2f61647269616e73626c696e6b6965636f6c6c656374696f6e2e6e656f6369746965732e6f72672f6334332e676966" src="https://github.com/user-attachments/assets/46dd1c8f-822f-4383-a1cf-a64b2ba32db3" />
 
 <p align="center">
@@ -41,11 +41,11 @@ I'm sensitive, sorry
 my [Strawpage](https://gaburgersnail.straw.page) (fatass wip)
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31isjnv22efuaintnx52mswxhmee&cover_image=true&theme=spotify-embed&show_offline=true&background_color=000000&interchange=false&profanity=false&hide_remaster=false&bar_color=ff94e8&bar_color_cover=false&mode=dark">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31isjnv22efuaintnx52mswxhmee&cover_image=true&theme=spotify-embed&show_offline=false&background_color=000000&interchange=false&profanity=false&hide_remaster=false&bar_color=ff94e8&bar_color_cover=false&mode=dark">
   </a>
 
 </p><p align="center">
-  Anyways!!!!!! THATS ALL!!!!!!!! :3 TYSM FOR READING! HAVE A GOOD DAY OR NIGHT , ( ˶˘ ³˘)♡
+  Anyways!!!!!! THATS ALL!!!!!!!! HAVE A GOOD DAY OR NIGHT , ( ˶˘ ³˘)♡
 </p>
 
 <p align="center">
