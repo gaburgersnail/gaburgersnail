@@ -5,38 +5,88 @@
 
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
 <p align="center">
-  HEllo1 My name is Lucas . Luke for short! :) I'm 🏳‍⚧ (FtM) and gay ⁠♡⸝⸝ . My pronouns are he/they ! 
-</p><img width="150" height="20" alt="68747470733a2f2f61647269616e73626c696e6b6965636f6c6c656374696f6e2e6e656f6369746965732e6f72672f6334332e676966" src="https://github.com/user-attachments/assets/46dd1c8f-822f-4383-a1cf-a64b2ba32db3" />
+  HEllo1 My name is Lucas . Luke for short :) I'm 🏳‍⚧ (FtM) and gay omg . My pronouns are HE/THEY 
 
 <p align="center">
-<img width="498" height="428" alt="stomachbook-stomach-book" src="https://github.com/user-attachments/assets/bf1e850a-de9c-4e5b-b7b2-fa794ee0bf2a" />
+<img width="450" height="" alt="stomachbook-stomach-book" src="https://github.com/user-attachments/assets/bf1e850a-de9c-4e5b-b7b2-fa794ee0bf2a" />
 </p>
 
-  ╰ I'm in a few fandoms! Such as Castle, D&B, HS, TDI, UT/DR, Regretevator, Chicago Fire, CreatureCore, TMIRB, Drawnout, 9-1-1, II and more !! ^^
+<details>
+  <summary>fandoms </summary>
+  
+D&B
 
-,, 🎧 I LOVE MUSIC!!!!!!! My favourite artists/bands/producers(??) are: Gisele Gurney (A.K.A Gezebelle Gaburgably <3 ), Reel Big Fish, Fried by Fluoride, Uncle Outrage, Femtanyl, BikiniKill, Diet Tea Other Cola, Emamouse, HEXXO, Furry Loser, Coakira, Noisetripper, Stomach Book, Lapfox/Halley Labs, Spott (CreatureCore), Devi McCallion (including her aliases), DOG TREATS, BBSI, MAILPUP/sixwing, cluli (Lost Frog Productions), Gynx AND A BUNCH MOREE!!!!!!!!!!! <33
+HS
 
-◡◡ ﹒ some things about me (˶˃ᆺ˂˶)  
+TDI
 
-   <img width="194" height="114" alt="flamingo-albert-albert-flamingo" src="https://github.com/user-attachments/assets/92b2a94d-6ddd-49a0-b3e1-28232a947a16" /><img width="194" height="113" alt="a72" src="https://github.com/user-attachments/assets/aed4ed6b-bdef-4b54-8ea3-58e815a63b19" /><img width="194" height="113" alt="tumblr_24e26feb48f1b0b03d3aaaba0974000d_e14b3a67_100" src="https://github.com/user-attachments/assets/568a0b9f-abfa-44e5-b0d4-25209a339f5e" /><img width="194" height="113" alt="tumblr_bd61192a9333f9a592970208d4863246_baad5bb2_100" src="https://github.com/user-attachments/assets/f62cad7d-177a-4761-906d-6de329a810e1" /><img width="194" height="113" alt="tumblr_824d36dfc76a901144f2db8062ccbaee_0dd5541f_100" src="https://github.com/user-attachments/assets/97b8df6f-82a9-4b59-b799-0f4d4db29d6f" />
+UT/DR
+
+Regretevator
+
+Funhouse
+
+SFaWTDE/DaWTDE
+
+DDLC
+
+TMIRB 
+
+Drawnout
+
+9-1-1
+
+OSC
+
+NSO
+
+Touhou
+
+Pokemon
+
+TMG
+
+Phighting (P!)
+
+Cookie run
+
+EZ/LoT
+
+  
+</details>
 
 
+🎧 I LOVE MUSIC!!!!!!! My favourite artists/bands/producers(??) are: Gisele Gurney, Fried by Fluoride, Uncle Outrage, Femtanyl, BikiniKill, Diet Tea Other Cola, Emamouse, HEXXO, Furry Loser, Coakira, Noisetripper, Stomach Book, Lapfox/Halley Labs, Spott (CreatureCore), Devi McCallion (including her aliases), DOG TREATS, BBSI, MAILPUP/sixwing, cluli (Lost Frog Productions), Gynx AND A BUNCH MORE !!!!!!!!!!!OMG
 
+<details>
+  <summary>uninteresting information about me</summary>
+  
+I don't know how to start/keep a conversation, and i'm deeply sorry about that. So if it ever seems like i'm uninterested or something, trust me, im not. I just don't know what to say. again im sorryyyyyyyyyyyyy.
 
-
-I don't know how to start/keep a conversation, and i'm deeply sorry about that. So if it ever seems like i'm uninterested or something, trust me, im not. I just don't know what to say. again, im sorry. (｡ᵕ ◞ _◟)
 
 My birthday is October 3rd!! 🎂
 
+
 I like joking around! Mostly with friends though
 
-I really like playing Psychological horror games and PonyTown! („• ֊ •„)
+
+I really like playing Psychological horror games and PonyTown!
+
 
 I like drawing, reading, writing, painting and coding
 
+
 Gisele Gurney is my comfort artist, while Bis is my comfort band
 
-I'm sensitive, sorry
+
+I'm sensitive
+
+  
+</details>
+
+
+   <img width="180" height="" alt="flamingo-albert-albert-flamingo" src="https://github.com/user-attachments/assets/92b2a94d-6ddd-49a0-b3e1-28232a947a16" /><img width="190" height="" alt="a72" src="https://github.com/user-attachments/assets/aed4ed6b-bdef-4b54-8ea3-58e815a63b19" /><img width="190" height="" alt="tumblr_24e26feb48f1b0b03d3aaaba0974000d_e14b3a67_100" src="https://github.com/user-attachments/assets/568a0b9f-abfa-44e5-b0d4-25209a339f5e" /><img width="190" height="" alt="tumblr_bd61192a9333f9a592970208d4863246_baad5bb2_100" src="https://github.com/user-attachments/assets/f62cad7d-177a-4761-906d-6de329a810e1" /><img width="190" height="" alt="tumblr_824d36dfc76a901144f2db8062ccbaee_0dd5541f_100" src="https://github.com/user-attachments/assets/97b8df6f-82a9-4b59-b799-0f4d4db29d6f" />
+
 
 my [Strawpage](https://gaburgersnail.straw.page) (fatass wip)
 <p align="center">
@@ -49,7 +99,7 @@ my [Strawpage](https://gaburgersnail.straw.page) (fatass wip)
 </p>
 
 <p align="center">
- <img width="300" height="150" alt="razor" src="https://github.com/user-attachments/assets/5c7ddfb3-8872-41c0-ba76-a7357f244e0e" />
+ <img width="300" height="" alt="razor" src="https://github.com/user-attachments/assets/5c7ddfb3-8872-41c0-ba76-a7357f244e0e" />
 </p>
 <img width="150" height="20" alt="femtanyl blinkie colon three" src="https://github.com/user-attachments/assets/6c73751f-84f9-4ead-839c-22ca9e33ef63" /><img width="150" height="20" alt="a94782e7ea49dd576a082b00fd3816c21f0e885c" src="https://github.com/user-attachments/assets/08c8aa0a-5aaf-4527-91bf-43ff45bcbe8a" />
 <img width="150" height="20" alt="f69ac9bcfd9ae4b1495739085a2c1d5a8a879781" src="https://github.com/user-attachments/assets/f22249ed-d1d0-4843-88e1-2974fa914ac8" /><img width="150" height="20" alt="47" src="https://github.com/user-attachments/assets/0db26d97-7990-4ff6-91bf-ebaf7ba96651" />
