@@ -87,7 +87,7 @@ I'm sensitive
 </details>
 
 
-
+my [新book](https://gaburgersnail.atabook.org/) :P
 
 
 
