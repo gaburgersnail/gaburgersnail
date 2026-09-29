@@ -67,7 +67,7 @@ Gisele Gurney, Fried by Fluoride, Slippymudman, Uncle Outrage, Femtanyl, BikiniK
 
 Idk how to keep conversations sorry
 
-My birthday is October 3rd!! 🎂
+My birthday is in October 3rd 🎂
 
 
 I like joking around! Mostly with friends though
