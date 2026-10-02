@@ -97,7 +97,7 @@ I'm sensitive
 </details>
 
 
-my [新book](https://gaburgersnail.atabook.org/)
+my [新book](https://gaburgersnail.atabook.org/) and [pronouns page](https://en.pronouns.page/@gaburgerSnail)
 
 
 
