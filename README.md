@@ -1,6 +1,14 @@
 ## remaking
 
 <details>
+  <summary>hi</summary>
+my name is Lucas, Luke for short
+
+im trans and gay
+  
+</details>
+
+<details>
   <summary>interests</summary>
   
 
@@ -89,7 +97,7 @@ I'm sensitive
 </details>
 
 
-my [新book](https://gaburgersnail.atabook.org/) :P
+my [新book](https://gaburgersnail.atabook.org/)
 
 
 
