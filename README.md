@@ -65,7 +65,7 @@ EZ/LoT
 <details>
   <summary>music</summary>
   
-Gisele Gurney, Fried by Fluoride, Slippymudman, Uncle Outrage, Femtanyl, BikiniKill, Diet Tea Other Cola, Emamouse, HEXXO, Furry Loser, Coakira, Noisetripper, Stomach Book, Lapfox/Halley Labs, Spott (CreatureCore), Devi McCallion (including her aliases), DOG TREATS, BBSI, MAILPUP/sixwing, cluli (Lost Frog Productions), Gynx and loads more
+Gisele Gurney, Fried by Fluoride, Cricket! The Guy, Slippymudman, Kobaryo, Uncle Outrage, Femtanyl, BikiniKill, Crucify April, Diet Tea Other Cola, Emamouse, HEXXO, Furry Loser, Coakira, Noisetripper, Stomach Book, Lapfox/Halley Labs, Kkamiistarr, Spott (CreatureCore), Devi McCallion (including her aliases), Goreshit, Bis, Vylet Pony, rehirable, The Oozes, DOG TREATS, BBSI, MAILPUP/sixwing, cluli (Lost Frog Productions), Gynx and loads more
   
 </details>
 
@@ -97,7 +97,7 @@ I'm sensitive
 </details>
 
 
-my [新book](https://gaburgersnail.atabook.org/) and [pronouns page](https://en.pronouns.page/@gaburgerSnail) sp is wip
+my [新book](https://gaburgersnail.atabook.org/) and [pronouns page](https://en.pronouns.page/@gaburgerSnail) straw is wip
 
 
 
