@@ -77,7 +77,6 @@ if ure interested: i made a playlist filled with music i like, u can find it in 
   
 
 
-Idk how to keep conversations sorry
 
 My birthday is in October 3rd 🎂
 
@@ -85,20 +84,34 @@ My birthday is in October 3rd 🎂
 I like joking around! Mostly with friends though
 
 
-I really like playing Psychological horror games and PonyTown!
+I really like playing Psychological horror games and PonyTown
 
 
-I like drawing, reading, writing, painting and coding
+I like drawing, reading, writing, sculpting and coding
 
 
-Gisele Gurney is my comfort artist
+Gisele Gurney is my comfort artist!! i get really happy when i see more gezebelle fans :D
 
 
-I'm sensitive
 
   
 </details>
 
+
+<details>
+  <summary>byi</summary>
+im sensitive
+
+.
+
+my mental and physical health are very bad and theyre getting worse everyday, so if im ever very rude, dry, distant or anything like that, PLEASE dont think im trying to avoid you. im struggling, im trying my best to change.
+
+
+my social skills are very bad, idk how to start/keep a conversation. plz bear w me:(
+
+im okay with people venting to me, but keep in mind I DONT KNOW HOW to comfort correctly (im not even good at comforting myself) . most of the times i feel like i might say something that will ruin everything, thats why i always keep quiet. im sorry. i dont want to seem like i dont care, because i DO care, its just that i cant come up w something to say
+
+</details>
 
 <details>
 <summary>for pony town</summary>
