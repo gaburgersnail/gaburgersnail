@@ -67,7 +67,7 @@ EZ/LoT
   
 Gisele Gurney, Fried by Fluoride, Cricket! The Guy, Slippymudman, Kobaryo, Uncle Outrage, Femtanyl, BikiniKill, Crucify April, Diet Tea Other Cola, Emamouse, HEXXO, Furry Loser, Coakira, Mommy Long Legs, mammalfriend, Slutever, Noisetripper, Stomach Book, Lapfox/Halley Labs, Kkamiistarr, MIDI Bunny, Ida Deerz, PASSENGER OF SHIT, 1-800 PAIN, Spott (CreatureCore), Devi McCallion (including her aliases), Goreshit, Bis, Vylet Pony, rehirable, The Oozes, DOG TREATS, BBSI, MAILPUP/sixwing, cluli (Lost Frog Productions), Gynx and loads more
 
-if ure interested: i made a playlist filled with music i like, u can find it in my [youtube account](https://www.youtube.com/@HeloWOrrrldddd)
+if ure interested: i made a playlist filled with music i like, u can find it in my [youtube account](https://www.youtube.com/@HeloWOrrrldddd) (i still gotta add more to it)
   
 </details>
 
