@@ -11,53 +11,53 @@ im trans and gay
 <details>
   <summary>interests</summary>
   
+**ALL FANDOMS IWCUF...ok..**
 
+Dave & Bambi
 
-D&B
+Homestuck
 
-HS
+Total Drama
 
-TDI
+ItzSkeet (roblox arg)
 
-ItzSkeet
+The Binding Of Isaac
 
-TBOI
+Escape From Daisy's House
 
-EFDH
-
-UT/DR
+Undertale/Deltarune
 
 Regretevator
 
 Funhouse
 
-SFaWTDE/DaWTDE
+Searching For a World That Doesn't Exist/Destroying a World That Doesn't Exist
 
-DDLC
+Doki Doki! Literature Club
 
-TMIRB 
+The Moon I Rot Behind
 
 Drawnout
 
 9-1-1
 
-OSC
+Object Shows
 
-EKH
+Egg Kevin's House
 
-NSO
+Needy Streamer Overload
 
 Touhou
 
 Pokemon
 
-TMG
+The Midnight Gospel
 
 Phighting (P!)
 
 Cookie run
 
-EZ/LoT
+Endzone/Law of Talos
 
   
 </details>
