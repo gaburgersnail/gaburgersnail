@@ -65,7 +65,7 @@ EZ/LoT
 <details>
   <summary>music</summary>
   
-Gisele Gurney, Fried by Fluoride, Cricket! The Guy, Slippymudman, Kobaryo, Uncle Outrage, Femtanyl, BikiniKill, Crucify April, Diet Tea Other Cola, Emamouse, HEXXO, Furry Loser, Coakira, Mommy Long Legs, mammalfriend, Slutever, Noisetripper, Stomach Book, Lapfox/Halley Labs, Kkamiistarr, MIDI Bunny, Ida Deerz, PASSENGER OF SHIT, 1-800 PAIN, Spott (CreatureCore), Devi McCallion (including her aliases), Goreshit, Bis, Vylet Pony, rehirable, The Oozes, DOG TREATS, BBSI, MAILPUP/sixwing, cluli (Lost Frog Productions), Gynx and loads more
+Gisele Gurney, Fried by Fluoride, Cricket! The Guy, Slippymudman, lalalala bite me b*tch, Cherry Sprinklez, ILY2, Kobaryo, Uncle Outrage, Femtanyl, BikiniKill, Crucify April, Diet Tea Other Cola, Emamouse, HEXXO, Furry Loser, Coakira, Mommy Long Legs, mammalfriend, Slutever, Noisetripper, Stomach Book, Lapfox/Halley Labs, Kkamiistarr, MIDI Bunny, Ida Deerz, PASSENGER OF SHIT, 1-800 PAIN, Spott (CreatureCore), Devi McCallion (including her aliases), Goreshit, Bis, Vylet Pony, rehirable, The Oozes, DOG TREATS, BBSI, MAILPUP/sixwing, cluli (Lost Frog Productions), Gynx and loads more
 
 if ure interested: i made a playlist filled with music i like, u can find it in my [youtube account](https://www.youtube.com/@HeloWOrrrldddd) (i still gotta add more to it)
   
@@ -110,6 +110,8 @@ my mental and physical health are very bad and theyre getting worse everyday, so
 my social skills are very bad, idk how to start/keep a conversation. plz bear w me:(
 
 im okay with people venting to me, but keep in mind I DONT KNOW HOW to comfort correctly (im not even good at comforting myself) . most of the times i feel like i might say something that will ruin everything, thats why i always keep quiet. im sorry. i dont want to seem like i dont care, because i DO care, its just that i cant come up w something to say
+
+im more comfortable with people around my age (14-18) due to personal things. i dont mind small interactions if ure above 18
 
 </details>
 
