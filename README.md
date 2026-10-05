@@ -5,7 +5,7 @@
 
 my name is Lucas, Luke for short
 
-i use _he/they_ pronouns only
+i use _he/they_ pronouns
 
 im trans and gay
   
