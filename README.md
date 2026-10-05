@@ -2,9 +2,10 @@
 
 <details>
   <summary>hi</summary>
+
 my name is Lucas, Luke for short
 
-im a male, i use he/they pronouns
+im a male, i use _he/they_ pronouns only
 
 im trans and gay
   
