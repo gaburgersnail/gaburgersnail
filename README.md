@@ -28,6 +28,8 @@ The Binding Of Isaac
 
 Fact Attack Adventures
 
+Animal Crossing
+
 Escape From Daisy's House
 
 Undertale/Deltarune
