@@ -120,6 +120,10 @@ im more comfortable with people around my age (14-18) due to personal things. i 
 
 dont except me to add you if we just started talking or had small interactions, i will only add you if i gain enough confidence and if i want to (bc its my choice)
 
+cuddles are fine unless im with friends
+
+please do not cover me
+
 i dont really mind if you take inspo off my skins, just PLEASE dont directly copy them because that would make me upset
 
 im mostly afk or offtab, so please whisper if u want to int
