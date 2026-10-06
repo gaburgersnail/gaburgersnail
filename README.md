@@ -87,6 +87,9 @@ if ure interested: i made a playlist filled with music i like, u can find it in 
 
 My birthday is in October 3rd 🎂
 
+I really like animals..my fav ones are hyraxes penguins dogs and shrews :D
+
+cherries yum
 
 I like joking around! Mostly with friends though
 
@@ -118,7 +121,7 @@ my social skills are very bad, idk how to start/keep a conversation. plz bear w 
 
 im okay with people venting to me, but keep in mind I DONT KNOW HOW to comfort correctly (im not even good at comforting myself) . most of the times i feel like i might say something that will ruin everything, thats why i always keep quiet. im sorry. i dont want to seem like i dont care, because i DO care, its just that i cant come up w something to say
 
-im more comfortable with people around my age (14-18) due to personal things. i dont mind small interactions if ure above 18
+im more comfortable with people around my age (14-18) due to personal things. i dont really mind small interactions if ure above 19
 
 </details>
 
