@@ -14,7 +14,7 @@ im trans and gay
 <details>
   <summary>interests</summary>
   
-**ALL FANDOMS IWCUF...ok..**
+**ALL FANDOMS IWCUF**
 
 Dave & Bambi
 
@@ -123,16 +123,19 @@ my social skills are very bad, idk how to start/keep a conversation. plz bear w 
 
 im okay with people venting to me, but keep in mind I DONT KNOW HOW to comfort correctly (im not even good at comforting myself) . most of the times i feel like i might say something that will ruin everything, thats why i always keep quiet. im sorry. i dont want to seem like i dont care, because i DO care, its just that i cant come up w something to say
 
-im more comfortable with people around my age (14-18) due to personal things. i dont really mind small interactions if ure above 19
+im more comfortable with people around my age (14-18) i dont really mind small interactions if ure above 19
 
 </details>
 
 <details>
 <summary>for pony town</summary>
 
-dont except me to add you if we just started talking or had small interactions, i will only add you if i gain enough confidence and if i want to (bc its my choice)
+i dont friend people
+
 
 cuddles are fine unless im with friends
+
+im mostly in the bakery, rarely in main map
 
 please do not cover me
 
