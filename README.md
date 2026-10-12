@@ -144,7 +144,7 @@ im mostly afk or offtab, so please whisper if u want to int
 </details>
 
 
-my [新book](https://gaburgersnail.atabook.org/) and [pronouns page](https://en.pronouns.page/@gaburgerSnail) straw is wip
+my [新book](https://gaburgersnail.atabook.org/) and [pronouns page](https://en.pronouns.page/@gaburgerSnail) ( [strawpafe](https://gaburgersnail.straw.page) is still wip but go sign it if u want )
 
 
 
