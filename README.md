@@ -22,6 +22,8 @@ Homestuck
 
 Total Drama
 
+Genshin Impact
+
 ItzSkeet (roblox arg)
 
 The Binding Of Isaac
