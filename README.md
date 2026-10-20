@@ -147,6 +147,19 @@ i dont really mind if you take inspo off my skins, just PLEASE dont directly cop
 
 im mostly afk or offtab, so please whisper if u want to int
 
+</details>
+<details>
+<summary>honorabkle mentions</summary>
+
+[zachiiieeeeu](https://github.com/zachhxd) meowzers u dont know how much i love you..thinking about how we met & how we started getting along with each other makes me giggle sometimes but im actually so proud to have you here i love youy so much zach!!!!!!!!!!💌💓💕 <3
+
+[staaaiirrrr](https://github.com/paperflavored) i really like being with u yYOure a very funny person yu always make me laugh everytime im feeling down please take care of yourselvf i Lov You and our amazing children Baba and Abab( 🐦🐦‍⬛
+
+[zarinaa](https://github.com/sprouttheking-bit) i love your sense of humour so much like you always carry some creative and hilarious jokes in your pockets i really like playing w u ilysmm babes but STOP spam calling me on tiktok or well have a good talk 😡
+
+**skyeee** (they dont have github) we dont really talk as we used to before but i really appreciate you for trying to lighten up my mood and helping me feel better everytime i wasnt feeling alright. hope youre ok i loveyou i miss playing pony town with you lmfaoo also im sorry for being so annoying sometimes 🩷rofl
+
+[liannn](https://github.com/lianswarmupaccount-art)  we barely talk now since ure pretty inactive (kinda??¿) but i really enjoyed spending time w u. Loveesss💞!!
 
 </details>
 
