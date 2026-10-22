@@ -72,7 +72,7 @@ and 7uhm more but im too lazy tot ype them all in here
 <details>
   <summary>music</summary>
   
-Gisele Gurney, Walking Intrusive Thought, Nelward, Fried by Fluoride, Cricket! The Guy, Slippymudman, lalalala bite me b*tch, Cherry Sprinklez, ILY2, Kobaryo, Uncle Outrage, Femtanyl, BikiniKill, Crucify April, Diet Tea Other Cola, Emamouse, HEXXO, Furry Loser, Coakira, Mommy Long Legs, mammalfriend, Slutever, Noisetripper, PinkPantheress, Stomach Book, Zhnoi, Toxic Lipstick, Cat Crash, Taitoki, Lapfox/Halley Labs, Kkamiistarr, MIDI Bunny, Ida Deerz, PASSENGER OF SHIT, 1-800 PAIN, STYXVII, The Dresden Dolls, zombAe, Spott (CreatureCore), Devi McCallion (including her aliases), Goreshit, Bis, Vylet Pony, rehirable, The Oozes, DOG TREATS, BBSI, MAILPUP/sixwing, cluli (Lost Frog Productions), Gynx and wayyy more
+Gisele Gurney (obviously hhaha) , Walking Intrusive Thought, Nelward, Cricket! The Guy, Slippymudman, lalalala bite me b*tch, Cherry Sprinklez, ILY2, Kobaryo, Uncle Outrage, Femtanyl, BikiniKill, Crucify April, Diet Tea Other Cola, Emamouse, HEXXO, Furry Loser, Coakira, Mommy Long Legs, mammalfriend, Slutever, Noisetripper, PinkPantheress, Stomach Book, Zhnoi, Toxic Lipstick, Cat Crash, Taitoki, Lapfox/Halley Labs, Kkamiistarr, MIDI Bunny, Ida Deerz, Cringetopia, PASSENGER OF SHIT, 1-800 PAIN, STYXVII, The Dresden Dolls, zombAe, Spott (CreatureCore), Devi McCallion (including her aliases), Goreshit, Bis, Vylet Pony, rehirable, The Oozes, DOG TREATS, BBSI, MAILPUP/sixwing, cluli (Lost Frog Productions), Gynx and wayyy more
 
 if ure interested: i made a playlist filled with music i like, u can find it in my [youtube account](https://www.youtube.com/@HeloWOrrrldddd) (**i still gotta add more to it**)
   
