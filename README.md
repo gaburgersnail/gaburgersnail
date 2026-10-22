@@ -28,11 +28,7 @@ ItzSkeet (roblox arg)
 
 The Binding Of Isaac
 
-Fact Attack Adventures
-
 Animal Crossing
-
-Big City Greens
 
 Escape From Daisy's House
 
@@ -54,8 +50,6 @@ Drawnout
 
 9-1-1
 
-Object Shows
-
 Egg Kevin's House
 
 Needy Streamer Overload
@@ -68,9 +62,9 @@ The Midnight Gospel
 
 Phighting (P!)
 
-Cookie run
-
 Endzone/Law of Talos
+
+and 7uhm more but im too lazy tot ype them all in here
 
   
 </details>
@@ -78,7 +72,7 @@ Endzone/Law of Talos
 <details>
   <summary>music</summary>
   
-Gisele Gurney, Walking Intrusive Thought, Nelward, Fried by Fluoride, Cricket! The Guy, Slippymudman, lalalala bite me b*tch, Cherry Sprinklez, ILY2, Kobaryo, Uncle Outrage, Femtanyl, BikiniKill, Crucify April, Diet Tea Other Cola, Emamouse, HEXXO, Furry Loser, Coakira, Mommy Long Legs, mammalfriend, Slutever, Noisetripper, PinkPantheress, Stomach Book, Zhnoi, Toxic Lipstick, Cat Crash, Taitoki, Lapfox/Halley Labs, Kkamiistarr, MIDI Bunny, Ida Deerz, PASSENGER OF SHIT, 1-800 PAIN, STYXVII, The Dresden Dolls, zombAe, Spott (CreatureCore), Devi McCallion (including her aliases), Goreshit, Bis, Vylet Pony, rehirable, The Oozes, DOG TREATS, BBSI, MAILPUP/sixwing, cluli (Lost Frog Productions), Gynx and even more
+Gisele Gurney, Walking Intrusive Thought, Nelward, Fried by Fluoride, Cricket! The Guy, Slippymudman, lalalala bite me b*tch, Cherry Sprinklez, ILY2, Kobaryo, Uncle Outrage, Femtanyl, BikiniKill, Crucify April, Diet Tea Other Cola, Emamouse, HEXXO, Furry Loser, Coakira, Mommy Long Legs, mammalfriend, Slutever, Noisetripper, PinkPantheress, Stomach Book, Zhnoi, Toxic Lipstick, Cat Crash, Taitoki, Lapfox/Halley Labs, Kkamiistarr, MIDI Bunny, Ida Deerz, PASSENGER OF SHIT, 1-800 PAIN, STYXVII, The Dresden Dolls, zombAe, Spott (CreatureCore), Devi McCallion (including her aliases), Goreshit, Bis, Vylet Pony, rehirable, The Oozes, DOG TREATS, BBSI, MAILPUP/sixwing, cluli (Lost Frog Productions), Gynx and wayyy more
 
 if ure interested: i made a playlist filled with music i like, u can find it in my [youtube account](https://www.youtube.com/@HeloWOrrrldddd) (**i still gotta add more to it**)
   
@@ -93,7 +87,7 @@ if ure interested: i made a playlist filled with music i like, u can find it in 
 
 My birthday is in October 3rd 🎂
 
-I really like animals..my fav ones are hyraxes penguins dogs and shrews :D
+I really like animals..my fav ones are hyraxes penguins dogs and shrews
 
 cherries yum
 
@@ -103,7 +97,7 @@ I like joking around! Mostly with friends though
 I really like playing Psychological horror games and PonyTown
 
 
-I like drawing, reading, writing, sculpting and coding
+I like drawing, reading, writing, and coding
 
 
 Gisele Gurney is my comfort artist!! i get really happy when i see more gezebelle fans :D
@@ -151,11 +145,11 @@ im mostly afk or offtab, so please whisper if u want to int
 <details>
 <summary>honorabkle mentions</summary>
 
-[zachiiieeeeu](https://github.com/zachhxd) meowzers u dont know how much i love you..thinking about how we met & how we started getting along with each other makes me giggle sometimes but im actually so proud to have you here i love youy so much zach!!!!!!!!!!💌💓💕 <3
+[zachiiieeeeu](https://github.com/zachhxd) meowzers u dont know how much i love you..thinking about how we met & how we started getting along with each other makes me giggle sometimes but im actually so proud to have you here i love youy sO FUCKING MUCH ZACH m!!!!!!!!!!💌💓💕 <3
 
-[staaaiirrrr](https://github.com/paperflavored) i really like being with u yYOure a very funny person yu always make me laugh everytime im feeling down please take care of yourselvf i Lov You and our amazing children Baba and Abab( 🐦🐦‍⬛
+[staaaiirrrr](https://github.com/paperflavored) i really like being with u yYOure a very funny person yu always make me laugh everytime im feeling down please take care of yourselvf i Lov You and our amazing children _Baba and Abab( 🐦🐦‍⬛_
 
-[zarinaa](https://github.com/sprouttheking-bit) i love your sense of humour so much like you always carry some creative and hilarious jokes in your pockets i really like playing w u ilysmm babes but STOP spam calling me on tiktok or well have a good talk 😡
+[zarinaa](https://github.com/sprouttheking-bit) i love your sense of humour so much like you always carry some good jokes in your pockets i really like playing wWith u ilysmm babes but STOP spam calling me on tiktok or i will kilol YOu 😡
 
 **skyeee** (they dont have github) we dont really talk as we used to before but i really appreciate you for trying to lighten up my mood and helping me feel better everytime i wasnt feeling alright. hope youre ok i loveyou i miss playing pony town with you lmfaoo also im sorry for being so annoying sometimes 🩷rofl
 
@@ -164,7 +158,7 @@ im mostly afk or offtab, so please whisper if u want to int
 </details>
 
 
-my [新book](https://gaburgersnail.atabook.org/) and [pronouns page](https://en.pronouns.page/@gaburgerSnail) ( [strawpafe](https://gaburgersnail.straw.page) is still wip but go sign it if u want )
+my [新book](https://gaburgersnail.atabook.org/) and [pronouns page](https://en.pronouns.page/@gaburgerSnail) ( [strawpagfe](https://gaburgersnail.straw.page) is still wip but go sign it if u want )
 
 
 
