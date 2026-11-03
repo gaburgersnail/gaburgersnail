@@ -96,6 +96,7 @@ I like joking around! Mostly with friends though
 
 I really like playing Psychological horror games and PonyTown
 
+I got a LOTT of aliases (ok not too many but ok ok)
 
 I like drawing, reading, writing, and coding
 
@@ -114,14 +115,14 @@ im sensitive
 
 .
 
-my mental and physical health are very bad and theyre getting worse everyday, so if im ever very rude, dry, distant or anything like that, PLEASE dont think im trying to avoid you. im struggling, im trying my best to change.
+my mental and physical health are very bad and theyre getting worse everyday, so if im ever very rude, dry, distant or anything like that, PLEASE dont think im trying to avoid you. im struggling, im trying my best to get help.
 
 
 my social skills are very bad, idk how to start/keep a conversation. plz bear w me:(
 
 im okay with people venting to me, but keep in mind I DONT KNOW HOW to comfort correctly (im not even good at comforting myself) . most of the times i feel like i might say something that will ruin everything, thats why i always keep quiet. im sorry. i dont want to seem like i dont care, because i DO care, its just that i cant come up w something to say
 
-im more comfortable with people around my age (14-18) i dont really mind small interactions if ure above 19
+im more comfortable with people around my age (14-19) i dont really mind small interactions if ure above 20
 
 </details>
 
@@ -140,20 +141,6 @@ please do not cover me
 i dont really mind if you take inspo off my skins, just PLEASE dont directly copy them because that would make me upset
 
 im mostly afk or offtab, so please whisper if u want to int
-
-</details>
-<details>
-<summary>honorabkle mentions</summary>
-
-[zachiiieeeeu](https://github.com/zachhxd) meowzers u dont know how much i love you..thinking about how we met & how we started getting along with each other makes me giggle sometimes but im actually so proud to have you here i love youy sO FUCKING MUCH ZACH m!!!!!!!!!!💌💓💕 <3
-
-[staaaiirrrr](https://github.com/paperflavored) i really like being with u yYOure a very funny person yu always make me laugh everytime im feeling down please take care of yourselvf i Lov You and our amazing children _Baba and Abab( 🐦🐦‍⬛_
-
-[zarinaa](https://github.com/sprouttheking-bit) i love your sense of humour so much like you always carry some good jokes in your pockets i really like playing wWith u ilysmm babes but STOP spam calling me on tiktok or i will kilol YOu 😡
-
-**skyeee** (they dont have github) we dont really talk as we used to before but i really appreciate you for trying to lighten up my mood and helping me feel better everytime i wasnt feeling alright. hope youre ok i loveyou i miss playing pony town with you lmfaoo also im sorry for being so annoying sometimes 🩷rofl
-
-[liannn](https://github.com/lianswarmupaccount-art)  we barely talk now since ure pretty inactive (kinda??¿) but i really enjoyed spending time w u. Loveesss💞!!
 
 </details>
 
