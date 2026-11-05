@@ -14,13 +14,15 @@ im trans and gay
 <details>
   <summary>interests</summary>
   
-**ALL FANDOMS IWCUF**
+.
 
-Dave & Bambi
+Total Drama
 
 Homestuck
 
-Total Drama
+Suction Cup Man
+
+Dave & Bambi
 
 Genshin Impact
 
