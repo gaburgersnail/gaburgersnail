@@ -88,7 +88,7 @@ My birthday is in October 3rd 🎂
 
 I really like animals..my fav ones are hyraxes penguins dogs and shrews
 
-cherries yum
+I LOVE CHERRIES!!!!!!!!
 
 I like joking around! Mostly with friends though
 
@@ -109,7 +109,7 @@ Gisele Gurney is my comfort artist!! i get really happy when i see more gezebell
 
 
 <details>
-  <summary>byi</summary>
+  <summary>byi (please readdu</summary>
 im sensitive
 
 .
@@ -117,7 +117,7 @@ im sensitive
 my mental and physical health are very bad and are getting worse everyday, so if im ever very rude, dry, distant or anything like that, PLEASE dont think im trying to avoid you. im struggling, im trying my best to change and get better
 
 
->i might say *weird* things sometimes, sorry ;_;
+>i might say *weird* things sometimes, and i heavily apologize for this i swear im trying to control myself😟
 
 
 im very awkward and my social skills are reaalllyy bad, idk how to start/keep a conversation
