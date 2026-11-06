@@ -116,7 +116,10 @@ im sensitive
 
 .
 
-my mental and physical health are very bad and theyre getting worse everyday, so if im ever very rude, dry, distant or anything like that, PLEASE dont think im trying to avoid you. im struggling, im trying my best to get help.
+my mental and physical health are very bad and are getting worse everyday, so if im ever very rude, dry, distant or anything like that, PLEASE dont think im trying to avoid you. im struggling, im trying my best to change and get better
+
+
+>i might say weird things sometimes, sorry
 
 
 my social skills are very bad, idk how to start/keep a conversation. plz bear w me:(
@@ -130,18 +133,17 @@ im more comfortable with people around my age (14-19) i dont really mind small i
 <details>
 <summary>for pony town</summary>
 
-i dont friend people
+I DONT FRIEND
 
 
 cuddles are fine unless im with friends
 
 im mostly in the bakery, rarely in main map
 
-please do not cover me
 
 i dont really mind if you take inspo off my skins, just PLEASE dont directly copy them because that would make me upset
 
-im mostly afk or offtab, so please whisper if u want to int
+im mostly afk or offtab, so use w2i
 
 </details>
 
