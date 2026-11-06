@@ -86,14 +86,14 @@ Gisele Gurney (obviously hhaha) , Walking Intrusive Thought, Nelward, Cricket! T
 
 My birthday is in October 3rd 🎂
 
-I really like animals..my fav ones are hyraxes penguins dogs and shrews
+I really like animals and insects......my fav ones are snails, hyraxes, penguins, eels, dogs, shrews, oarfishes, fennec foxes and the list keeps going !
 
-I LOVE CHERRIES!!!!!!!!
+I LOVE CHERRIES
 
 I like joking around! Mostly with friends though
 
 
-I really like playing Psychological horror games and PonyTown
+I really like playing Psychological horror games
 
 I got a LOTT of aliases (ok not too many but ok ok)
 
