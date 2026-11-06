@@ -42,9 +42,9 @@ Alien Stage
 
 Funhouse
 
-Searching For a World That Doesn't Exist/Destroying a World That Doesn't Exist
+Searching For a World That Doesn't Exist/Destroying a World That Doesn't Exist (dni)
 
-Doki Doki! Literature Club (dni)
+Doki Doki! Literature Club (hvy dni)
 
 The Moon I Rot Behind
 
@@ -56,13 +56,11 @@ Egg Kevin's House
 
 Needy Streamer Overload
 
-Touhou
-
 Pokemon
 
 The Midnight Gospel
 
-Phighting (P!)
+Phighting!
 
 Endzone/Law of Talos
 
@@ -119,14 +117,16 @@ im sensitive
 my mental and physical health are very bad and are getting worse everyday, so if im ever very rude, dry, distant or anything like that, PLEASE dont think im trying to avoid you. im struggling, im trying my best to change and get better
 
 
->i might say weird things sometimes, sorry
+>i might say *weird* things sometimes, sorry ;_;
 
 
-my social skills are very bad, idk how to start/keep a conversation. plz bear w me:(
+im very awkward and my social skills are reaalllyy bad, idk how to start/keep a conversation
 
-im okay with people venting to me, but keep in mind I DONT KNOW HOW to comfort correctly (im not even good at comforting myself) . most of the times i feel like i might say something that will ruin everything, thats why i always keep quiet. im sorry. i dont want to seem like i dont care, because i DO care, its just that i cant come up w something to say
+im okay with people venting to me, but keep in mind I DONT KNOW HOW to comfort correctly so i most of the times just keep quiet,,. im SO sorry. i dont want it to seem like i dont care, because i DO care, its just that i cant come up w something to say
 
 im more comfortable with people around my age (14-19) i dont really mind small interactions if ure above 20
+
+ALWAYS iwc im very moody
 
 </details>
 
@@ -138,10 +138,9 @@ I DONT FRIEND
 
 cuddles are fine unless im with friends
 
-im mostly in the bakery, rarely in main map
+im mostly in the bakery
 
-
-i dont really mind if you take inspo off my skins, just PLEASE dont directly copy them because that would make me upset
+i dont really mind if you take inspo off my skins, just PLEASE dont directly copy them
 
 im mostly afk or offtab, so use w2i
 
