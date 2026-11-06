@@ -24,7 +24,7 @@ Suction Cup Man
 
 Dave & Bambi
 
-Genshin Impact
+Genshin Impact (dni)
 
 ItzSkeet (roblox arg)
 
@@ -44,7 +44,7 @@ Funhouse
 
 Searching For a World That Doesn't Exist/Destroying a World That Doesn't Exist
 
-Doki Doki! Literature Club
+Doki Doki! Literature Club (dni)
 
 The Moon I Rot Behind
 
