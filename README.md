@@ -97,6 +97,8 @@ I really like playing Psychological horror games
 
 I got a LOTT of aliases (ok not too many but ok ok)
 
+I have a hamster...........hes so chubbbbby
+
 I like drawing, reading, writing, and coding
 
 
