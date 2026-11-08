@@ -119,7 +119,7 @@ im sensitive
 my mental and physical health are very bad and are getting worse everyday, so if im ever very rude, dry, distant or anything like that, PLEASE dont think im trying to avoid you. im struggling, im trying my best to change and get better
 
 
->i might say *weird* things sometimes, and i heavily apologize for this i swear im trying to control myself😟
+>i might say *weird* things sometimes, and i heavily apologize for this i swear im trying to control myself okay😟
 
 
 im very awkward and my social skills are reaalllyy bad, idk how to start/keep a conversation
@@ -128,19 +128,19 @@ im okay with people venting to me, but keep in mind I DONT KNOW HOW to comfort c
 
 im more comfortable with people around my age (14-19) i dont really mind small interactions if ure above 20
 
-ALWAYS iwc im very moody
+im most of the times upset or just very pissed off so yeah pleleassse iwc ok
 
 </details>
 
 <details>
 <summary>for pony town</summary>
 
-I DONT FRIEND
+***I DONT FRIEND***
 
 
-cuddles are fine unless im with friends
+absolutely NO CUDDLES UNLESS FRIEND okay
 
-im mostly in the bakery
+aaaalways in the bakery :(
 
 i dont really mind if you take inspo off my skins, just PLEASE dont directly copy them
 
