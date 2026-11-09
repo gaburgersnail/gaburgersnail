@@ -42,9 +42,13 @@ Alien Stage
 
 Funhouse
 
+Eddsworld
+
+The Amazing Digital Circus (dni)
+
 Searching For a World That Doesn't Exist/Destroying a World That Doesn't Exist (dni)
 
-Doki Doki! Literature Club (hvy dni)
+Doki Doki! Literature Club (dni)
 
 The Moon I Rot Behind
 
