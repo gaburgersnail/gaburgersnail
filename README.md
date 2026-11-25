@@ -115,7 +115,7 @@ Gisele Gurney is my comfort artist!! i get really happy when i see more gezebell
 
 
 <details>
-  <summary>byi (please readdu</summary>
+  <summary>byi (p</summary>
 im sensitive
 
 .
